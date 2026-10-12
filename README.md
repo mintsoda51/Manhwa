@@ -4,7 +4,7 @@
 
 👤 **Tác giả:** Sam Wol & Yuwoon  | **Thể loại:** Trùng sinh, Romance, Fantasy
 
-**ĐÁNH GIÁ:** Hay, Cốt truyện dễ chịu, Art đẹp, tác giả biết cách END truyện 🤌 Approved
+**ĐÁNH GIÁ:** Cốt truyện dễ chịu, Art đẹp, tác giả biết cách END truyện 🤌 Approved
 
 # Cổ Tích Về Người Mẹ Kế - A Stepmother's Märchen
 
