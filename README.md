@@ -26,4 +26,4 @@
 
 👤 **Tác giả:** Seong Hyerim (Hyerim Sung), **Minh họa (Manhwa):** Henie | **Thể loại:** Drama, Fantasy, Romance, Historical
 
-**ĐÁNH GIÁ:** Art đẹp, không có trùng sinh hay sống lại buff bẩn. Sếch cháy. Nhược điểm: sếch quá nhiều, nhiều lúc cần đọc cốt truyện chính không tìm thấy. 🤌 Approved
+**ĐÁNH GIÁ:** Art đẹp, không có trùng sinh hay sống lại buff bẩn. Sếch cháy 🔥 Nhược điểm: sếch quá nhiều 💦 Cần đọc cốt truyện chính không tìm thấy 🤌 Approved
