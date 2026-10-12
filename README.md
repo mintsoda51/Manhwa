@@ -21,3 +21,9 @@
 👤 **Tác giả:** Gwon Gyeoeul, **Minh họa (Manhwa):** SUOL | **Thể loại:** Trùng sinh, Romance, Fantasy
 
 **ĐÁNH GIÁ:** Art đẹp. Cốt truyện trùng sinh không mới. Nữ 9 không bị ngu. Nam 9 không cận lùn đụt trĩ. Ai cũng quyết đoán trừ tác giả câu chap nhưng vẫn biết END truyện.
+
+# The Secret Bedroom of the Abandoned Princess | Phòng Ngủ Bí Mật Của Công Chúa Bị Bỏ Rơi
+
+👤 **Tác giả:** Seong Hyerim (Hyerim Sung), **Minh họa (Manhwa):** Henie | **Thể loại:** Drama, Fantasy, Romance, Historical
+
+**ĐÁNH GIÁ:** Art đẹp, không có trùng sinh hay sống lại buff bẩn. Sếch cháy. Nhược điểm: sếch quá nhiều, nhiều lúc cần đọc cốt truyện chính không tìm thấy. 🤌 Approved
