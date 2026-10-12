@@ -8,7 +8,7 @@
 
 # Cổ Tích Về Người Mẹ Kế - A Stepmother's Märchen
 
-![](https://pbs.twimg.com/media/HUZUxA2bIAA1ZTF?format=jpg&name=medium)
+![](https://pbs.twimg.com/media/HUZWjI2boAAbEET?format=jpg&name=medium)
 
 👤 **Tác giả:** Spice & Kitty, Minh họa: ORKA | **Thể loại:** Trùng sinh, Romance, Fantasy
 
