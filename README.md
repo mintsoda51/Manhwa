@@ -16,7 +16,7 @@
 
 **Thể loại:** Trùng sinh, Romance, Fantasy
 
-**ĐÁNH GIÁ:** Ai thích lãng mạn sẽ thích, không thích lãng mạn sẽ không thích.
+**ĐÁNH GIÁ:** Ai thích lãng mạn sẽ thích, không thích lãng mạn sẽ không thích. 🤌 Approved
 
 # Villains Are Destined to Die - Kết Cục Của Nhân Vật Phản Diện Chỉ Có Thể Là Cái Chết | END
 
