@@ -50,9 +50,10 @@
 
 # How to Get My Husband on My Side | Phương Pháp Khiến Phu Quân Đứng Về Phía Tôi
 
+![](https://pbs.twimg.com/media/HUZlTa0bsAAa544?format=jpg&name=large)
+
 **Thể loại:** Phiêu lưu, Giả tưởng, Isekai, Phép thuật, Tâm lý, Lãng mạn, Bi kịch
 
 👤 **Tác giả:** Nguyên tác (Light Novel): Spice&Kitty , Minh họa/chuyển thể (Manhwa): SIRU 
 
 **ĐÁNH GIÁ:** Đọc tạm được. Ra chap lâu quá
-
