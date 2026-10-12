@@ -24,6 +24,8 @@
 
 # The Secret Bedroom of the Abandoned Princess | Phòng Ngủ Bí Mật Của Công Chúa Bị Bỏ Rơi
 
+![](https://pbs.twimg.com/media/HUZeDS7agAADznw?format=jpg&name=large)
+
 👤 **Tác giả:** Seong Hyerim (Hyerim Sung), **Minh họa (Manhwa):** Henie | **Thể loại:** Drama, Fantasy, Romance, Historical
 
 **ĐÁNH GIÁ:** Art đẹp, không có trùng sinh hay sống lại buff bẩn. Sếch cháy 🔥 Nhược điểm: sếch quá nhiều 💦 Cần đọc cốt truyện chính không tìm thấy 🤌 Approved
