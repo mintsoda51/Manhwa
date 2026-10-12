@@ -2,7 +2,9 @@
 
 ![](https://pbs.twimg.com/media/HUZUxA2bIAA1ZTF?format=jpg&name=medium)
 
-👤 **Tác giả:** Sam Wol & Yuwoon  | **Thể loại:** Trùng sinh, Romance, Fantasy
+👤 **Tác giả:** Sam Wol & Yuwoon
+
+**Thể loại:** Trùng sinh, Romance, Fantasy
 
 **ĐÁNH GIÁ:** Cốt truyện dễ chịu, Art đẹp, tác giả biết cách END truyện 🤌 Approved
 
@@ -10,7 +12,9 @@
 
 ![](https://pbs.twimg.com/media/HUZWjI2boAAbEET?format=jpg&name=medium)
 
-👤 **Tác giả:** Spice & Kitty, **Minh họa:** ORKA | **Thể loại:** Trùng sinh, Romance, Fantasy
+👤 **Tác giả:** Spice & Kitty, **Minh họa:** ORKA
+
+**Thể loại:** Trùng sinh, Romance, Fantasy
 
 **ĐÁNH GIÁ:** Ai thích lãng mạn sẽ thích, không thích lãng mạn sẽ không thích.
 
@@ -18,7 +22,9 @@
 
 ![](https://pbs.twimg.com/media/HUZaHxMaUAAjlyv?format=jpg&name=medium)
 
-👤 **Tác giả:** Gwon Gyeoeul, **Minh họa (Manhwa):** SUOL | **Thể loại:** Trùng sinh, Romance, Fantasy
+👤 **Tác giả:** Gwon Gyeoeul, **Minh họa (Manhwa):** SUOL
+
+**Thể loại:** Trùng sinh, Romance, Fantasy
 
 **ĐÁNH GIÁ:** Art đẹp. Cốt truyện trùng sinh không mới. Nữ 9 không bị ngu. Nam 9 không cận lùn đụt trĩ. Ai cũng quyết đoán trừ tác giả câu chap nhưng vẫn biết END truyện.
 
@@ -26,6 +32,18 @@
 
 ![](https://pbs.twimg.com/media/HUZeDS7agAADznw?format=jpg&name=large)
 
-👤 **Tác giả:** Seong Hyerim (Hyerim Sung), **Minh họa (Manhwa):** Henie | **Thể loại:** Drama, Fantasy, Romance, Historical
+👤 **Tác giả:** Seong Hyerim (Hyerim Sung), **Minh họa (Manhwa):** Henie
+
+**Thể loại:** Drama, Fantasy, Romance, Historical
 
 **ĐÁNH GIÁ:** Art đẹp, không có trùng sinh hay sống lại buff bẩn. Sếch cháy 🔥 Nhược điểm: sếch quá nhiều 💦 Cần đọc cốt truyện chính không tìm thấy 🤌 Approved
+
+# The Fake Saintess Awaits Her Exit | Thánh Nữ Giả Muốn Bỏ Trốn | 가짜 성녀는 퇴장을 기다린다
+
+![](https://pbs.twimg.com/media/HUZe2kFagAAPOkr?format=jpg&name=900x900)
+
+👤 Tác giả nguyên tác (Tiểu thuyết): Baek Seol Hong, Biên kịch webtoon (Chuyển thể): pine, Minh họa (Webtoon): Kim Puk-puk
+
+**Thể loại:** Harem, 18+, Romance, Fantasy, Chuyển sinh
+
+**ĐÁNH GIÁ:** Nữ 9 vừa chạy trên hành lang vừa chảy nước
