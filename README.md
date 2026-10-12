@@ -1,4 +1,4 @@
-# Actually, I Was the Real One | Thực Ra Tôi Mới Là Thật | Ch150 END
+# Actually, I Was the Real One | Thực Ra Tôi Mới Là Thật - Ch150 END
 
 ![](https://pbs.twimg.com/media/HUZUxA2bIAA1ZTF?format=jpg&name=medium)
 
@@ -8,7 +8,7 @@
 
 **ĐÁNH GIÁ:** Cốt truyện dễ chịu, Art đẹp, tác giả biết cách END truyện 🤌 Approved
 
-# Cổ Tích Về Người Mẹ Kế - A Stepmother's Märchen | ĐANG THEO DÕI
+# Cổ Tích Về Người Mẹ Kế - A Stepmother's Märchen  - Đang theo dõi
 
 ![](https://pbs.twimg.com/media/HUZWjI2boAAbEET?format=jpg&name=medium)
 
@@ -18,7 +18,7 @@
 
 **ĐÁNH GIÁ:** Ai thích lãng mạn sẽ thích, không thích lãng mạn sẽ không thích. 🤌 Approved
 
-# Villains Are Destined to Die - Kết Cục Của Nhân Vật Phản Diện Chỉ Có Thể Là Cái Chết | END
+# Villains Are Destined to Die - Kết Cục Của Nhân Vật Phản Diện Chỉ Có Thể Là Cái Chết - END
 
 ![](https://pbs.twimg.com/media/HUZaHxMaUAAjlyv?format=jpg&name=medium)
 
@@ -28,7 +28,7 @@
 
 **ĐÁNH GIÁ:** Art đẹp. Cốt truyện trùng sinh không mới. Nữ 9 không bị ngu. Nam 9 không cận lùn đụt trĩ. Ai cũng quyết đoán trừ tác giả câu chap nhưng vẫn biết END truyện. 🤌 Approved
 
-# The Secret Bedroom of the Abandoned Princess | Phòng Ngủ Bí Mật Của Công Chúa Bị Bỏ Rơi | ĐANG THEO DÕI
+# The Secret Bedroom of the Abandoned Princess | Phòng Ngủ Bí Mật Của Công Chúa Bị Bỏ Rơi - Đang theo dõi
 
 ![](https://pbs.twimg.com/media/HUZeDS7agAADznw?format=jpg&name=large)
 
@@ -38,7 +38,7 @@
 
 **ĐÁNH GIÁ:** Art đẹp, không có trùng sinh hay sống lại buff bẩn. Sếch cháy 🔥 Nhược điểm: sếch quá nhiều 💦 Cần đọc cốt truyện chính không tìm thấy 
 
-# The Fake Saintess Awaits Her Exit | Thánh Nữ Giả Muốn Bỏ Trốn | 가짜 성녀는 퇴장을 기다린다
+# The Fake Saintess Awaits Her Exit | Thánh Nữ Giả Muốn Bỏ Trốn | 가짜 성녀는 퇴장을 기다린다  - END
 
 ![](https://pbs.twimg.com/media/HUZe2kFagAAPOkr?format=jpg&name=900x900)
 
@@ -48,7 +48,7 @@
 
 **ĐÁNH GIÁ:** Nữ 9 vừa chạy trên hành lang vừa chảy nước
 
-# How to Get My Husband on My Side | Phương Pháp Khiến Phu Quân Đứng Về Phía Tôi
+# How to Get My Husband on My Side | Phương Pháp Khiến Phu Quân Đứng Về Phía Tôi - Đang theo dõi
 
 ![](https://pbs.twimg.com/media/HUZlTa0bsAAa544?format=jpg&name=large)
 
